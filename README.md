@@ -27,7 +27,7 @@ This dataset is built to:
 
 ## Related Resources
 
-• Full Report: [Detergent Market](https://www.nextmsc.com/report/italy-military-computer-market-3645)
+• Full Report: [Detergent Market](https://www.nextmsc.com/report/detergent-market-3640)
 
 • Press Release: Global Detergent Market Trends and Forecasts →
 
